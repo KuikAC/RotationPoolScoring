@@ -1,0 +1,2 @@
+# RotationPoolScoring
+RotationPoolScoring Privacy Policy
